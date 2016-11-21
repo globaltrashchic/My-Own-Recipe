@@ -16,4 +16,4 @@ _**Directions:**_
 3. Place tuna on preheated skillet and cook for 1-2 minutes on each side, depending on thickness, and then remove from skillet. Seared tuna is best when medium rare. This is our Stovetop Searing cooking method. Place on a plate.
 4. Turn heat down to medium and add rest of ingredients to pan in order given, and cook for 1 minute. Season with salt and pepper. Pour over tuna and serve.
 
-[](http://www.whfoods.com/recipeimages/10minsearedtuna.jpg)
+![food image](http://www.whfoods.com/recipeimages/10minsearedtuna.jpg)
