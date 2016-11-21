@@ -9,7 +9,7 @@
 * 1 TBS minced fresh ginger
 * 3 TBS minced scallion salt & white pepper to taste
 
-#### _**Directions:**_
+### _**Directions:**_
 
 1. Preheat 10-12 inch stainless steel skillet over medium-high heat for 2 minutes.
 2. While pan is preheating, rub tuna with 1 TBS lemon juice, season with a little salt and white pepper, and prepare ginger and scallion.
